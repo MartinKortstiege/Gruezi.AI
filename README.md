@@ -1,1 +1,1 @@
-# Gruezi.AI
+# GRÜEZI.AI
